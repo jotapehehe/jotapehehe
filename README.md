@@ -5,4 +5,4 @@
 - 🇧🇷 como me achar: joao.setni.alves@escola.pr.gov.br 🇧🇷
 
 
-![](https://media1.tenor.com/m/2N5GDoyNGOoAAAAC/dancing-emoji.gif)
+![](https://media1.tenor.com/m/geJ_z7oBrPAAAAAd/continue.gif)
