@@ -6,3 +6,5 @@
 
 
 ![](https://media1.tenor.com/m/geJ_z7oBrPAAAAAd/continue.gif)
+
+![https://tenor.com/pt-BR/view/gumball-discord-mod-gif-22325292]
